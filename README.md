@@ -1,6 +1,8 @@
 # FULL-DISCLOSURE
 Subject: kinger90210 | Claim: FULL DISCLOSURE
+
 FULL TEXT BELOW:
+
 I talked with some of the most high frequency posters of r/UFOs about how to do this for months.
 
 Here is the plan:
